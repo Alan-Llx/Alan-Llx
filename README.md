@@ -1,1 +1,1 @@
-Hello there :grinning_face:
+Hello there 😀
